@@ -1,1 +1,1 @@
-Intern for Red Hat, not much else to say.
+not up to much.
